@@ -1,4 +1,4 @@
-![welcome](https://i.imgur.com/6XHBC84.png) <br/>
+![welcome](https://i.imgur.com/V0JZtOP.png) <br/>
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/reconlx)
 
 
